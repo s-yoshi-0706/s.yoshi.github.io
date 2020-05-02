@@ -1,0 +1,1 @@
+# s.yoshi.github.io
